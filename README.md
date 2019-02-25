@@ -1,0 +1,3 @@
+RESERVE PARKING FOR: MOTHER NATURE
+
+When we walk through the streets of downtown Pittsburgh, we may not think about what was once there. Buildings were trees. Streets were dirt. Stop signs were flowers. We may not realize the damage we create by taking over Mother Nature's land. My project shows that we _should_ reserve some more space for mother nature. One of America's respected Presidents, Franklin D. Roosevelt, made it one of his missions to help preserve the beautiful lands that America has to offer. That's why I found it necessary to include the quote from him. His policies are still in place today and have impacted how we look at nature. This project will hopefully make people stop and think before building or even litering. Keep America beautiful! 
